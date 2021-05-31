@@ -1,1 +1,1 @@
-![Image of sky](https://www.enjpg.com/img/2020/aesthetic-29.jpg)
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
