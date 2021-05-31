@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Love the world
+2. Spread love 
+3. Be the light to those who are in the dark
+
