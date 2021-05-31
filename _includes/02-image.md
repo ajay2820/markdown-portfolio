@@ -1,1 +1,1 @@
-! [Image of sky](https://www.enjpg.com/aesthetic-30/)
+![Image of sky](https://www.enjpg.com/aesthetic-30/)
